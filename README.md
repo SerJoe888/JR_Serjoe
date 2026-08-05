@@ -1,2 +1,3 @@
-# JR_Serjoe
-Exploring
+# Serge Jr Regalado
+serjie@yahoo.com
+
